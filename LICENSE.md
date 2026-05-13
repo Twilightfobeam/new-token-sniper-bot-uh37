@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with premium new token sniper bot | meme-coin-scanning + private-RPC-nodes. Featuring meme-coin-scanning and private-RPC-nodes, it's the best
 
 
 
